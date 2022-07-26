@@ -1,0 +1,3 @@
+Thanks for downloading: #jswe39fv'/c/s.///////vro2^^%*))3#$&//.virus.......
+To uninstall paste this command in the terminal 
+before the virus takes over: "$ sudo apt install virius-deleter".
